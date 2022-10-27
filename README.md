@@ -23,3 +23,18 @@ https://houzy.wpengine.com/
 http://old4.commonsupport.com/apartio/
 
 http://netizensstore.com/kutumb_theme/kutumb_html/multipage-2/index.html
+
+
+
+Template Monster
+-------------------------------
+https://bilurygallery.bithemer.com/
+https://live.themewild.com/pestox/
+https://live.themewild.com/restora/
+https://html.dreamitsolution.net/dex/
+https://loopcode.xyz/rentvilla/index.html
+https://danslacuisinededede.com/constructo/
+https://html.dreamitsolution.net/dreamit/handyman/
+https://themes.themewild.com/edulife/
+https://live.themewild.com/industox/
+https://live.themewild.com/airfly/
