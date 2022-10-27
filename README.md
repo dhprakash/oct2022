@@ -59,3 +59,14 @@ https://themes.themewild.com/repairo/
 https://livedemo00.template-help.com/wt_prod-19846/
 https://livedemo00.template-help.com/wt_prod-20846/
 https://livedemo00.template-help.com/wt_prod-19533
+https://live.themewild.com/repax/
+https://live.themewild.com/mindtox/
+https://ithemeslab.com/tmdemo/template/efort/
+https://webinfaceit.com/itinface/rection/
+https://barakahit.net/html/decorate/
+https://templatemonster.vecuro.com/html/vendora/
+https://constructv1.s3.ca-central-1.amazonaws.com/construct/index.html
+https://www.templatemonster.com/website-templates/52815.html
+https://themes.themewild.com/carelax/
+https://html.dreamitsolution.net/busino/
+https://html.dreamitsolution.net/techno-architecture/
