@@ -70,3 +70,12 @@ https://www.templatemonster.com/website-templates/52815.html
 https://themes.themewild.com/carelax/
 https://html.dreamitsolution.net/busino/
 https://html.dreamitsolution.net/techno-architecture/
+https://live.themewild.com/restora/
+https://live.themewild.com/eduhub/
+https://templatemonster.vecuro.com/html/immohaus/
+https://loopcode.xyz/houzi/
+https://live.themewild.com/homfind/---------------
+https://livedemo00.template-help.com/wt_58887_v2/
+https://webartinfo.com/templatemonster/realtorpoint/---------
+https://bestwpware.com/html/tm/hilux-demo/
+https://codeglamour.com/html/findinn/
