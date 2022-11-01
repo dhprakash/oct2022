@@ -2,6 +2,10 @@
 oct2022
 
 Tem_moster
+https://demo.etechplan.com/quest/
+https://demo-egenslab.b-cdn.net/html/directfind/
+https://theme-flix.com/xirisoft/index.html
+https://live.themewild.com/wastex/
 https://designmilitary.com/preview/landing-pages/HolidayWorld/index.html
 https://live.themewild.com/aircool/
 https://live.themewild.com/lawrez/
