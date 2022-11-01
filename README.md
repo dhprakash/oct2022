@@ -2,6 +2,22 @@
 oct2022
 
 Tem_moster
+https://designmilitary.com/preview/landing-pages/HolidayWorld/index.html
+https://live.themewild.com/aircool/
+https://live.themewild.com/lawrez/
+https://demo.themexbd.com/html/rels/
+https://demo.themexbd.com/html/nupur/
+https://alpha.astemplatedesigns.com/
+https://ascinate.in/templatemonster/travel/
+https://kamleshyadav.com/templatemonster-html/transport/
+https://www.test.greenart.com.ua/-------------
+https://bilurygallery.bithemer.com/-------
+https://html.minshark.com/humber/landing/---------
+https://live.themewild.com/haircut/
+https://html.dreamitsolution.net/techno-architecture/---------
+https://live.themewild.com/mozex/----------
+https://nextgenerationdev.com/demos/html/conbus/
+https://staging2.webdesigntexas.us/edulab-html/
 https://templates.templatedri.com/construction/
 https://html.matethemes.com/nipom/preview/
 https://templates.templatedri.com/home/
